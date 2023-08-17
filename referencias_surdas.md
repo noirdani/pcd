@@ -1,8 +1,38 @@
 # Referências sobre libras, comunidade surda e diversidade surda
 
-INFLUENCERS DIGITAIS
+INFLUENCERS DIGITAIS (Instagram)
 
-Em construção!
+[@vinnphoto](https://www.instagram.com/vinnphoto/)
+
+[@guisurdo](https://www.instagram.com/guisurdo/)
+
+[@surdinhodobrasil](https://www.instagram.com/surdinhodobrasil/)
+
+[@maluparis](https://www.instagram.com/maluparis)
+
+[@leocastilho](https://www.instagram.com/leocastilho/)
+
+[@isflocos](https://www.instagram.com/isflocos/)
+
+[@laklobato](https://www.instagram.com/laklobato/)
+
+[@kitanadreams](https://www.instagram.com/kitanadreams/)
+
+[@cronicasdasurdez](https://www.instagram.com/cronicasdasurdez/)
+
+[@surdotemvoz](https://www.instagram.com/surdotemvoz/)
+
+[@sepulvedacosta](https://www.instagram.com/sepulvedacosta/)
+
+[@bethaniamagalhaes](https://www.instagram.com/bethaniamagalhaes/)
+
+[@legendanacional](https://www.instagram.com/legendanacional)
+
+[@handtalkbr](https://www.instagram.com/handtalkbr/)
+
+[@falamesmodeia](https://www.instagram.com/falamesmodeia/)
+
+[@alexbilljr](https://www.instagram.com/alexbilljr/)
 
 VIDEOS REFLEXIVOS QUE VALE A PENA ASSISTIR
 
