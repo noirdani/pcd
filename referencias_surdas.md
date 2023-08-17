@@ -18,10 +18,11 @@ VIDEOS REFLEXIVOS QUE VALE A PENA ASSISTIR
 
 [Regina Casé e sua filha surda](https://www.youtube.com/watch?v=3M36QIqR4_g)
 
-[Minha audição não funciona como a sociedade quer](https://www.youtube.com/watch?v=Bcq6GPyMfPo) o 
+[Minha audição não funciona como a sociedade quer](https://www.youtube.com/watch?v=Bcq6GPyMfPo)
 
 [Somos diferentes de você?](https://www.youtube.com/watch?v=efudeZSsMs8)
 
+[Min e as mãozinhas - desenho animado](https://www.youtube.com/watch?v=zNCczm3jzgo)
 
 SUGESTÕES DE FILMES e SÉRIES
 
@@ -34,6 +35,8 @@ The Sound of Metal - 2019 (Amazon Prime)
 The silence - 2019 (Netflix)
 
 Um lugar silencioso - parte I, II e III - 2018 (Netflix)
+
+Switched at Birth (Trocadas na Maternidade) - 2011 a 2017 - 5 temporadas (Youtube ou Amazon Prime)
 
 A Família Bélier - 2014
 
