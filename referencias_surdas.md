@@ -6,6 +6,8 @@ INFLUENCERS DIGITAIS (Instagram)
 
 [@guisurdo](https://www.instagram.com/guisurdo/)
 
+[@isabella.bauer](https://www.instagram.com/isabella.bauer/)
+
 [@surdinhodobrasil](https://www.instagram.com/surdinhodobrasil/)
 
 [@maluparis](https://www.instagram.com/maluparis)
