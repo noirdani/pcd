@@ -52,7 +52,9 @@ Black
 
 [@cillinhablack](https://www.instagram.com/cillinhablack/)
 
-LGBTQQIAPN+
+LGBTQIAPN+
+
+[@leocastilho](https://www.instagram.com/leocastilho/)
 
 [@ritadlibra](https://www.instagram.com/ritadlibra)
 
