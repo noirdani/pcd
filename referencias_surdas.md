@@ -1,8 +1,32 @@
 # Referências sobre libras, comunidade surda e diversidade surda
 
+Não deixe de seguir o meu projeto pessoal de Segurança da Informação! 
+
+[@defsec_](https://www.instagram.com/deafsec_/)
+
 INFLUENCERS DIGITAIS (Instagram)
 
+Humor
+
 [@vinnphoto](https://www.instagram.com/vinnphoto/)
+
+[memesurdos](https://www.instagram.com/memesurdos/)
+
+[abelluiiz](https://www.instagram.com/abelluiiz/)
+
+Surdos sinalizados
+
+[@betlibras](https://www.instagram.com/betlibras/)
+
+[@paula.librasnaturall](https://www.instagram.com/paula.librasnaturall/)
+
+[@isflocos](https://www.instagram.com/isflocos/)
+
+[@sepulvedacosta](https://www.instagram.com/sepulvedacosta/)
+
+[@bethaniamagalhaes](https://www.instagram.com/bethaniamagalhaes/)
+
+Surdos oralizados
 
 [@guisurdo](https://www.instagram.com/guisurdo/)
 
@@ -12,29 +36,47 @@ INFLUENCERS DIGITAIS (Instagram)
 
 [@maluparis](https://www.instagram.com/maluparis)
 
-[@leocastilho](https://www.instagram.com/leocastilho/)
-
-[@isflocos](https://www.instagram.com/isflocos/)
-
 [@laklobato](https://www.instagram.com/laklobato/)
-
-[@kitanadreams](https://www.instagram.com/kitanadreams/)
 
 [@cronicasdasurdez](https://www.instagram.com/cronicasdasurdez/)
 
+[@alexbilljr](https://www.instagram.com/alexbilljr/)
+
+Black
+
+[@leocastilho](https://www.instagram.com/leocastilho/)
+
+[@falamesmodeia](https://www.instagram.com/falamesmodeia/)
+
+[@edinhopoesia](https://www.instagram.com/edinhopoesia/)
+
+[@cillinhablack](https://www.instagram.com/cillinhablack/)
+
+LGBTQQIAPN+
+
+[@ritadlibra](https://www.instagram.com/ritadlibra)
+
+[@kitanadreams](https://www.instagram.com/kitanadreams/)
+
+Ouvintes
+
+[@debora_libras](https://www.instagram.com/debora_libras/)
+
+[@ointerpretedelibras](https://www.instagram.com/ointerpretedelibras/)
+
+[@marioaugustolibras](https://www.instagram.com/marioaugustolibras/)
+
+[@josenetolibras](https://www.instagram.com/josenetolibras/)
+
+Geral
+
+[@cademiadelibras](https://www.instagram.com/academiadelibras/)
+
 [@surdotemvoz](https://www.instagram.com/surdotemvoz/)
-
-[@sepulvedacosta](https://www.instagram.com/sepulvedacosta/)
-
-[@bethaniamagalhaes](https://www.instagram.com/bethaniamagalhaes/)
 
 [@legendanacional](https://www.instagram.com/legendanacional)
 
 [@handtalkbr](https://www.instagram.com/handtalkbr/)
-
-[@falamesmodeia](https://www.instagram.com/falamesmodeia/)
-
-[@alexbilljr](https://www.instagram.com/alexbilljr/)
 
 VIDEOS REFLEXIVOS QUE VALE A PENA ASSISTIR
 
