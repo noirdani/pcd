@@ -10,9 +10,9 @@ Humor
 
 [@vinnphoto](https://www.instagram.com/vinnphoto/)
 
-[memesurdos](https://www.instagram.com/memesurdos/)
+[@memesurdos](https://www.instagram.com/memesurdos/)
 
-[abelluiiz](https://www.instagram.com/abelluiiz/)
+[@abelluiiz](https://www.instagram.com/abelluiiz/)
 
 Surdos sinalizados
 
