@@ -118,6 +118,8 @@ A Família Bélier - 2014
 
 Filhos do Silêncio - 1986 - Uma atriz surda foi premiada no Oscar
 
+[Helen Keller e o Milagre de Anne Sullivan](https://www.youtube.com/watch?v=uvtaTbdcxsE)
+
 
 
 
