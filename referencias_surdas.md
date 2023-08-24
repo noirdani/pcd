@@ -82,6 +82,8 @@ Geral
 
 VIDEOS REFLEXIVOS QUE VALE A PENA ASSISTIR
 
+[Helen Keller - surda e cega - I'm not dumb now](https://www.youtube.com/watch?v=KLqyKeMQfmY)
+
 [Não faça isso com os surdos](https://www.youtube.com/watch?v=3GAS66KMVOM)
 
 [Paula Pfeifer - TEDxTalks](https://www.youtube.com/watch?v=frdnFURIooI)
