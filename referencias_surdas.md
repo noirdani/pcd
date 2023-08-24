@@ -26,6 +26,8 @@ Surdos sinalizados
 
 [@bethaniamagalhaes](https://www.instagram.com/bethaniamagalhaes/)
 
+[@tayanefullin](https://www.instagram.com/tayanefullin/)
+
 Surdos oralizados
 
 [@guisurdo](https://www.instagram.com/guisurdo/)
