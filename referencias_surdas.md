@@ -124,6 +124,11 @@ Filhos do Silêncio - 1986 - Uma atriz surda foi premiada no Oscar
 
 [Helen Keller e o Milagre de Anne Sullivan](https://www.youtube.com/watch?v=uvtaTbdcxsE)
 
+HISTÓRIA SOBRE SIGN WRITING - ESCRITA DE SINAIS
+
+[ESCRITA DE SINAIS](https://escritadesinais.com/2010/08/17/historia-do-signwriting/)
+
+
 
 
 
